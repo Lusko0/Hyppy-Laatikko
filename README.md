@@ -1,1 +1,0 @@
-# Hyppy-Laatikko
